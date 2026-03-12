@@ -1,3 +1,13 @@
 <img src="https://tinyurl.com/yx89u3p6" alt="">
-how do i put the text in the middle..
+
+- Vesper/Cosmic Collectively
+
+- 19 Bodily
+
+- System!!
+
+- very socially awkward, usually with @astrozgalaxy, if anything i might ask them to talk for me if i need
+
+- HOW DO I MAKE THIS LOOK RIGHT
+
 <img src="https://tinyurl.com/2hwz3zry" alt="">
