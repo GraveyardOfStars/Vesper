@@ -6,7 +6,7 @@
 
       - System!!
 
-      - very socially awkward, usually with @astrozgalaxy, if anything i might ask them to talk for me if i need
+      - very socially awkward, usually with @astrozdreamz, if anything i might ask them to talk for me if i need
 
      just check our carrd dawg i give up with this
 
