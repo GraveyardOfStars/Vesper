@@ -1,6 +1,6 @@
 <img src="https://tinyurl.com/yx89u3p6" alt="">
 
-  - Vesper/Cosmic Collectively
+  - Vesper/Derek Collectively
 
       - 19 Bodily
 
