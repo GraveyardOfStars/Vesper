@@ -6,6 +6,8 @@
 
       - System!!
 
+      - NON SHARING Baizhu Yumeshipper!
+
       - very socially awkward, usually with @astrozdreamz, if anything i might ask them to talk for me if i need
 
      just check our carrd dawg i give up with this
